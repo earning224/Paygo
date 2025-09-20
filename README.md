@@ -1,2 +1,0 @@
-# Paygo
-Massive rewards 
